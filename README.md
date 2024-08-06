@@ -1,5 +1,5 @@
 b![image](https://github.com/user-attachments/assets/db569edd-c24e-4524-8763-5b99d7a0a184)
-- 👋 Hi, I’m cristiano ronaldp
+- Hi, I’m cristiano ronaldp
 - o maior jogador de futebol de todos os anos
 - ganhei muitos titulos pela minha carreira
 - ![image](https://github.com/user-attachments/assets/e3970eaa-94b6-40ba-a768-03dc90094b9a)
